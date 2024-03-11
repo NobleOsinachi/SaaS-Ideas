@@ -17,8 +17,6 @@ https://getsocicake.com/
 
 https://transitions.ng/
 
-
 https://golibeilechukwu.com/coaching-program/
 
-
-
+https://swipepagesmedia.ams3.digitaloceanspaces.com/5fd005b88813b70017561b4a/10%20SaaS%20Ideas.pdf
