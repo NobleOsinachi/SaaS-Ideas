@@ -1,5 +1,8 @@
 # SaaS-Ideas
 
+https://www.reddit.com/r/SaaS/s/BvJ2usC7sq
+
+
 Amala Funnel
 www.creatorlab.media/test
 
