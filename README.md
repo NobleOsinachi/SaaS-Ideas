@@ -1,7 +1,7 @@
 # SaaS-Ideas
 
 https://www.reddit.com/r/SaaS/s/BvJ2usC7sq
-
+https://ippei.com/build-micro-saas-academy/
 
 Amala Funnel
 www.creatorlab.media/test
