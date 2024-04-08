@@ -28,3 +28,15 @@ https://swipepagesmedia.ams3.digitaloceanspaces.com/5fd005b88813b70017561b4a/10%
 
 Youtube Ali Abdaal
 https://academy.aliabdaal.com/
+
+
+Viral Videos Course 
+
+https://courses.tmsmedia.io/parttimecreator?
+
+ 
+
+
+
+
+
