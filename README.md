@@ -35,7 +35,7 @@ Viral Videos Course
 
 https://courses.tmsmedia.io/parttimecreator?
 
- 
+Mobile Video Graphy COutse https://selar.co/p/k7xi?affiliate=zp2a 
 
 
 
